@@ -1,4 +1,4 @@
-# 
+# best bot de negociação Bybit addons é o melhor bot de negociação Bybit addons com controle de slippage e tamanho da posição. Seguro, confiável e otimizado para estratégias de
 
 
 
